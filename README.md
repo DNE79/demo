@@ -1,1 +1,1 @@
-esta ota no tiene nada de importante
+esta nota no tiene nada de importante
